@@ -1,4 +1,4 @@
-# 
+# rare Plugin for GarageBand for macOS - sound-design and compressor offers the most advanced GarageBand for macOS plugin, with sound-design and compressor. Ideal for professional
 
 
 
